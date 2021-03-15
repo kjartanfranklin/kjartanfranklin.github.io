@@ -1,1 +1,0 @@
-# kjartanfranklin.github.io
